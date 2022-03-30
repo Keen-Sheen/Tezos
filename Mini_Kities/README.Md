@@ -1,1 +1,1 @@
-![image](mini_kitie.png)
+![image](Mini_Kitis.png)
